@@ -1,1 +1,1 @@
-# Portfolio
+Experienced Recent Engineering Management graduate with passion for supporting numerous Project initiatives through building relationships, driving product/service performance, minimizing expenditure, project planning and lifecycle management, and generating significant profits.
